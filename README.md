@@ -1,2 +1,2 @@
-# portfolio
-Manasvi Bathula's Portfolio 2024
+# Manasvi's Portfolio 2024
+
